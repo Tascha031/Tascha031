@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tascha031
 - 👀 I’m interested in gaming, dungeons & dragons and building websides.
-- 🌱 I’m currently learning to become a front-end engineer.
+- 🌱 I’m currently learning webdesign.
 - 💞️ I’m looking to collaborate on trading knowledge, learning and improving skills.
 - 📫 How to reach me ... through my account I guess, just know that I'm pretty shy.
 - 🌍 English isn't my first language, so I'm also learning to improve on my English writing.
